@@ -28,8 +28,7 @@ If you’re working on something exciting in these areas, let’s connect!
 
 📫 **Reach Me At:**
 - GitHub: Ping me here @Haris1788
-- Email: [herr.harismasood@gmail.com]
-- LinkedIn: [linkedin.com/in/haris-masood](https://linkedin.com/in/haris-masood)
+- LinkedIn: [https://www.linkedin.com/in/harismasood88/]
 
 ⚡ **Fun Fact:**
 I recently transitioned from India to Germany and am embracing this global journey while expanding my tech expertise. Let’s innovate together!
